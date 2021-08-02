@@ -1,15 +1,28 @@
 - 👋 Hi, I’m @J-R-R-O
 - 👀 look at me
-- 🌱 I eat plants
+- 🌱 I eat plants (mostly)
 - I like lists
 - I do stuff
-- I use version tracking software for atypical stuff
-- I also use it for code like a normal person
+- I use version tracking software for atypical projects
+- (I have an atypical brain AKA, ADHD)
+- I also use GitHub it for code like a "normal" person
 - I adore markdown formatting
 - I'm writing my 2nd novel
+-   - it's partially about a gay 🤠 cowboy insect
+-   - also about his 👩‍👧‍👦 family of scientists 👨‍👩‍👧 
+-   - also about gender and sexuality 🦚 🐙
+-   - also about the  🔬natural sciences, generally 🦒
+-   - also special emphasis on 🧬 biology, ecology, 🦎 speciation, 🦘 evolution 🐠 🐬 🐳  
+-   - also about space and robots (and dogs 🐕)
+-   - also about 🦧 anthropology, language, 🐎 history, religion 🧘‍♀️
+-   - also about the meaning of life and magic 🧚‍♀️
+-   - but fundamentally it's a charecter-driven story about the ways we stagnate, 🧫 grow, change, and evolve in relation to the size of the ⛓ cage we are in, the ⚖ people around us, and the 🔭 perspectives we are shown 📸.   
+-   - what I'm saying is, there's a lot going on 🤹
 - I have had dinner with Obama
 - I'm pretty weird
-- please star this page if you read it.  IDK why, but it would make me happy.
+- please star this page if you read it.  
+- I like "I was here" style chronicling of events
+- 
 - 💞️ don't break my heart
 - 📫 find me on twitter @JRROwens
 
